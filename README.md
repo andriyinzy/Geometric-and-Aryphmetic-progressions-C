@@ -1,0 +1,1 @@
+# Geometric-and-Aryphmetic-progressions-C
